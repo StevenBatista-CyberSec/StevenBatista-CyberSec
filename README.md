@@ -328,8 +328,7 @@ Actualmente cursando **Técnico Superior en Ciberseguridad en PUCMM** con más d
 
 - 📧 **Email:** stevenrbatista@gmail.com
 - 🔗 **LinkedIn:** [steven-ranses](https://linkedin.com/in/steven-ranses)
-- 📱 **Teléfono:** +1 (829) 349-5895
-- 📍 **Ubicación:** Santiago de los Caballeros, Dominican Republic
+- 📍 **Ubicación:** Dominican Republic
 
 ---
 
